@@ -1,0 +1,2 @@
+# Freedom
+Game Start！
